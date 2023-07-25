@@ -1,0 +1,1 @@
+# risqy-resolusi
